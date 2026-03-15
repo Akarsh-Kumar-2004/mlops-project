@@ -58,5 +58,3 @@ Project Organization
 fgdhdgfd
 mdadfgneaghffde
 ghwerhfjfderwthferdghm
-fghfdsegdfnveasfgnvb
-fghfgdhjmbhtdrgfhnvgdsr
